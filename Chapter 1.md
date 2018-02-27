@@ -2,7 +2,7 @@
 
 Determinism is the theory that everything in the universe is governed by cause and effect laws. 
 
-Although we usually accept determinism in our practical activities, most of us also indulge in judgements of moral responsbility, which seems could never be justified, if determiminism is true. Since, according to determinism, everything people do is completely caused;  nothing could happen except what actually does happen. It seems to follow that nobody can ever act differently from the way he acts, and hence that freedom of action must be an illusion and that human beings are never properly accountable for their conduct. Alternatively, if freedom is not an illusion, then determinism must be false. 
+Although we usually accept determinism in our practical activities, most of us also indulge in judgements of moral responsibility, which seems could never be justified, if determiminism is true. Since, according to determinism, everything people do is completely caused;  nothing could happen except what actually does happen. It seems to follow that nobody can ever act differently from the way he acts, and hence that freedom of action must be an illusion and that human beings are never properly accountable for their conduct. Alternatively, if freedom is not an illusion, then determinism must be false. 
 
 Similar sentiments are expressesd by Mark Twain in his book "Reflections on Religion:
 
