@@ -6,7 +6,7 @@ Although we usually accept determinism in our practical activities, the vast maj
 
 Similar sentiments are expressesd by Mark Twain in his book "Reflections on Religion:
 
-*Man is not blame for what he is. He didn't make himself. He has no control over himself. All the control is vested in his temperament - which he did not create - and in the circumstances which hedge  him round from the crade to the grave and which he did not devise...he is purely a piece of autoamtica mechanims as is a watch, and  can no more dictate or influence his actions tahn can the watch. he is a subject of pity, not blame - and not contempt. He is flung head over heels into this world without ever a chance to decline....*
+*Man is not blame for what he is. He didn't make himself. He has no control over himself. All the control is vested in his temperament - which he did not create - and in the circumstances which hedge  him round from the crade to the grave and which he did not devise...he is purely a piece of autoamtica mechanims as is a watch, and  can no more dictate or influence his actions than can the watch. he is a subject of pity, not blame - and not contempt. He is flung head over heels into this world without ever a chance to decline....*
 
 When determinism is stated in this way it appears as a paralyszing doctorine which implies that human effort itself is pointless. For I can ask "What point is there to my mental struggle tonight, for whether i continue or give up is predetermined."
 
